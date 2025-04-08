@@ -2,7 +2,7 @@
 ![Capture1!](‪C:\Users\HP\Desktop\Capture1.PNG)
 ![Capture2!](C:\Users\HP\Desktop\Capture2.PNG)
 
-[Image](https://github.com/user-attachments/assets/fa951f29-d315-44b4-a8f0-bbb3ba92ae03)
+![Image](https://github.com/user-attachments/assets/4e158b6e-e05a-420c-8406-f4d3890fa53e)
 
 ![Image](https://github.com/user-attachments/assets/f9b2316e-3893-41ff-a74c-515770a46433)
 
