@@ -1,6 +1,5 @@
 # IT2234P
-![Capture1!](‪C:\Users\HP\Desktop\Capture1.PNG)
-![Capture2!](C:\Users\HP\Desktop\Capture2.PNG)
+
 Q_01
 ![Image](https://github.com/user-attachments/assets/4e158b6e-e05a-420c-8406-f4d3890fa53e)
 Q_02
